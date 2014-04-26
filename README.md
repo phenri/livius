@@ -21,4 +21,5 @@ but I hope Thomas wouldn't mind as he's no longer active...
 Have fun.
 
 Oh and the default piece set is ugly but I'm not an artist.
+
 http://www.talkchess.com/forum/viewtopic.php?p=568381#568381
